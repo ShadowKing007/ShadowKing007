@@ -15,7 +15,9 @@
 
 - 📫 How to reach me **shariffibrahim528@gmail.com**
 
-- ⚡ Fun fact **https://drive.google.com/file/d/11s2xaZpD_BBWkW2YEUP2Jx4vRyjvIPGF/view?usp=sharing**
+- 📄 Know about my experiences [https://drive.google.com/file/d/11s2xaZpD_BBWkW2YEUP2Jx4vRyjvIPGF/view?usp=sharing](https://drive.google.com/file/d/11s2xaZpD_BBWkW2YEUP2Jx4vRyjvIPGF/view?usp=sharing)
+
+- ⚡ Fun fact **I'm scared of insects.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
